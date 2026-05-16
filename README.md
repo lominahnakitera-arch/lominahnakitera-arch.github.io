@@ -1,1 +1,1 @@
-consider the fole which has semi finals
+consider the file which has semi finals
